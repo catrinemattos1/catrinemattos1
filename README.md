@@ -1,0 +1,6 @@
+- 😗 nome:catrine
+- 👀 idade:15
+- ♐ signo:sargitário
+- 🍕 comida favorita:pizza
+- ✨ sonho:atriz
+- 📚 livro favorito:nightfall e até o verão terminar
